@@ -11,7 +11,7 @@ My brain runs on **dopamine**, **glutamate**, and **acetylcholine** — the neur
 - 💡 Interested in embedded systems, electrical systems, robotics, AI/deep learning, neural networks, and military-grade tech & weapon systems  
 - 🧠 Learning fast is my thing — I love reverse-engineering concepts until they click  
 - 🎮 I play games when I feel like it — exams or not. Favorites include:  
-  *War Thunder, Red Dead Redemption 2, GTA V, Elden Ring, and Minecraft (with a self-modified resource pack for maximum immersion and detail)*  
+  *Clash of Clans, Clash Royale, War Thunder, Red Dead Redemption 2, GTA V, Elden Ring, and Minecraft (with a self-modified resource pack for maximum immersion and detail)*  
 - 🔍 When I'm tired of gaming, I switch to self-research — mostly about ongoing regional or global issues  
 
 ---
